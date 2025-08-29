@@ -5,11 +5,11 @@ _”Antigender-liikkeen kerrotaan uhkaavan Suomea maista, joiden todellisuudessa
 
 Hunter is a member of the  Catholic Medical Association[^1], which primamirly opposes contraception[^2], abortion[^3], and LGBT rights [^4]. The CMA has said openly that they are partnered with ADF.[^1]
 
-**February 2022:** Alabaman transhoitokiello asiantuntijatodistajana Hunter kertoo, kuinka hänellä on ollut kunnia työskennella Kaltialan kanssa,  "joka oli keskeisessä rooissa muuttamassa Suomen hoitosuosituksia,  nähtyään hoitojen aiheuttamat haitat nuorille". Kuten monen muunkin osavaltion kiellon kohdalla, STM:n hoitosuositukset ovat liitteenä.[^5]
+**February 2022:** Alabama's transcareban expertwitness Hunter told, how he has had the honnor to work with Kaltiala,  "who was a central roll in altering Finnish treatmentguidelines, which saw the care inflicted harm on youth". As such, many other states banned at that point, STM:n treatment guidelines are attached.[^5]
 
-**April 2022:** Kaltiala antaa lausunnon kokouksessa, jonka SPLC:n myöhemmin viharyhmäksi lukittema SEGM[^6] järjesti Yhdysvaltain sosiaali-ja terveysministeriön kanssa. Hunter myös osallistujien listalla. [^7]SEGM järjesti tapaamisen, koska vastustavat Bidenin hallinnon säädöksiä, jotka pyrkivät puuttumaan epätasa-arvoon terveydenhuollossa[^8]
+**April 2022:** Kaltiala gave a statement at a SEGM confrence, which later became a SPLC designated hate group[^6], organised with United States HHS secetrary. Hunter also was on the presenter list. [^7]SEGM organised the event, because (they) opposed Biden admin law(EO?), which they attempted lacking unequal healthcare[^8]
 
-**May 2022:** Ron DeSantis nimittää Hunterin Florida Medical Boardin johtoon[^9].
+**May 2022:** Ron DeSantis names Hunter to the Florida Medical Board[^9].
 
 **October 2022:** DeSantisin poliittiseen ohjelmaan kuului mm. alaikäisten transhoitojen kielto, ja Hunter toimii kuulustelijana Florida Medical Boardin käsitellessä kieltoa. Hunterin tehtävä oli myös löytää asiantuntijat, jotka olisivat kiellon puolella. Kaltiala todistaa kiellon puolesta.[^10] 
 
